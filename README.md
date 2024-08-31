@@ -13,4 +13,4 @@ I began my journey at Facultad de Ingeniería (Fing UDELAR), where I built a str
 
 --------
 
-If you want to get in contact with me, you can reach me either on [LinkedIn](https://www.linkedin.com/in/romina-muniz-bentos-18bb59298/) or at RominaMunizBnetos@outlook.com.
+If you want to get in contact with me, you can reach me either on [LinkedIn](https://www.linkedin.com/in/romina-muniz-bentos-18bb59298/) or at RominaMunizBentos@outlook.com.
